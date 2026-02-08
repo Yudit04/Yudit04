@@ -5,7 +5,6 @@
 
 - 📫 How to reach me **rathiyudit1232@gmail.com**
 
-- 📄 Know about my experiences [http://bit.ly/4bm6BjM](http://bit.ly/4bm6BjM)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
